@@ -1,3 +1,5 @@
+Please add me as a Agent Developer [Published] on Discord, my username is Olivaoro#4328
+
 # High Gas Agent
 
 ## Description
